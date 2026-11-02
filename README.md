@@ -1,0 +1,1 @@
+# FragaCraft resource pack
